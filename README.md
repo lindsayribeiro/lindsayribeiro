@@ -1,4 +1,4 @@
-👺🤙Lindsay ribeiro rodrigues
+👺🤙**Lindsay** _Ribeiro Rodrigues_
 sou fumante🥴😶‍🌫️
 16y😛🤟
 
